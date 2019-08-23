@@ -1,2 +1,0 @@
-dsadjsajj
-skak
